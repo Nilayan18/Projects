@@ -23,6 +23,4 @@
 #### Assignment 3: https://drive.google.com/file/d/1VcGf7r_XnHwtS7u5g4vec-CpSaPEbsLL/view
 
 #### Rupesh Rajan (20BBS0146) Assignments:
-#### Assignment 1: 
-#### Assignment 2: 
-#### Assignment 3: 
+#### Assignments Link: https://drive.google.com/drive/folders/1F1ZGCJK_qhl3QiMAmTZ0YMoHTt8nwL24
